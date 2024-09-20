@@ -2,7 +2,7 @@
 - 👀 I’m interested in collaborating with othersbtraders and find new partners in my business
 - 🌱 I’m currently learning how I can reach many collaborators to exchangeideas and experiences in business
 - 💞️ I’m looking to collaborate oninvesting for agriculure and food security,and innovation to  access torenewable energy.
-- 📫 How to reach me ...
+- 📫 How to reach me:ndayisengafabiola@yahoo.com
 - 😄 Pronouns: She,her,hers
 - ⚡ Fun fact: Volleyball
 
